@@ -1,4 +1,4 @@
-### **Filósofos: Sua Busca Pessoal por Sabedoria** 
+### **Filósofos: Sua Busca Pessoal por Sabedoria - Imersão Dev com Google Gemini** 
 
 **O que é isso?**
 
